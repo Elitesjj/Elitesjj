@@ -29,7 +29,7 @@ Here are some ideas to get you started:
 ![](under-construction.gif)
 
 <br>
-check out my Tean: [Mystery](https://www.instagram.com/ftc_mystery/?igsh=N3R1azhkZ2tuZHM1&utm_source=qr#) ![](hot.gif)
+check out my Team: [Mystery](https://www.instagram.com/ftc_mystery/?igsh=N3R1azhkZ2tuZHM1&utm_source=qr#) ![](hot.gif)
 
 
 <br>
